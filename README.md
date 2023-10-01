@@ -1,2 +1,1 @@
 # yazilim-akademi
-# yazilim-akademi
